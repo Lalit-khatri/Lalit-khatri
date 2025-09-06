@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Lalit-kumar
-- 👀 I’m interested in internships , Full -time role 
-- 🌱 I’m currently 
+- 👀 Best and ruthless iOS developer ever.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ... lk.khatri558@gmail.com
 
