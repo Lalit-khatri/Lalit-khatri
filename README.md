@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lalit-kumar
-- 👀 Best and ruthless iOS developer ever.
+- 👀 Working on iOS/Backend/Agents.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ... lk.khatri558@gmail.com
 
