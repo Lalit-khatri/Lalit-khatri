@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lalit-kumar
 - 👀 Working on iOS/Backend/Agents.
-- 💞️ I’m looking to collaborate on 
+- 💞️ working at Google deepmind
 - 📫 How to reach me ... lk.khatri558@gmail.com
 
 <!---
